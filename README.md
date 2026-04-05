@@ -14,5 +14,7 @@ I thought it was pretty fun, so I would say that if you are bored and want to do
 4. if you are gonna do 2d art, no worries (You're done until you print and test) for 3d models, design it and put the flat side on the phone case.
 5. FOR THE STAND: Make sure it will be stable! Lots of designs work here.
 6. YOUR DONE!! Now, print out your design(s), and get building!
+<img width="426" height="603" alt="{65EA8904-9D3D-4E08-A14D-34FA3881944C}" src="https://github.com/user-attachments/assets/8ed8078c-7237-410d-ad69-aaa0ca16ba8f" />
+
 
 
